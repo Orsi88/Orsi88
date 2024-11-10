@@ -1,4 +1,4 @@
 ### Oii! Eu sou a Juh! 👋
 
-- 🌱 Estudando Python
+- 🌱 Estudando...
 - 😄 Pronouns: ela/dela

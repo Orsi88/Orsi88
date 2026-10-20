@@ -1,4 +1,6 @@
-### Oii! Eu sou a Juh! 👋
+### Lifelong Learner | Building Quality Engineering | Between Wild Ideas, Code & AI
 
-- 🌱 Estudando...
-- 😄 Pronouns: ela/dela
+   ∩＿∩
+  (｡•ᴥ•｡)
+  / つ☕
+
